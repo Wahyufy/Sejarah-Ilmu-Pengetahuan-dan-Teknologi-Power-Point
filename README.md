@@ -1,2 +1,2 @@
-# Sejarah-Ilmu-Pengetahuan-dan-Teknologi-Power-Point
+# Sejarah-IPTEK-Power-Point
 Tugas Kuliah PAI
